@@ -11,4 +11,4 @@
 这些链接为您带来最新的日韩视频资源，包括福利电影和各类高清片源，满足您不同的观影需求。探索精彩内容，享受高质量的视听体验吧！
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/thuoc20250709/thuoc6 ）</span>
